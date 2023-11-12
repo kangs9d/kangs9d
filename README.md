@@ -24,7 +24,7 @@ backend developer with experience in various kinds of fields, and I'm also worki
   - Are paper straws scientifically better for the environment than plastic straws?
 - League Of Legends! I recently reached Emerald 4
 - Anyone who has a true, unvarnished, and consistent attitude toward life
-- Anyone from whom I can learn something
+- Anyone from whom I can learn something
 - Animals! I really like animals (especially dogs and parrots)
 
 # What I don't like
